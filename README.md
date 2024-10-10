@@ -1,6 +1,4 @@
-# laksmianindyati.github.io
 
-###Education
 
 ## Work Experience 
 - As a Lcturer
